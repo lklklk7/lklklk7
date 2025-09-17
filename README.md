@@ -1,4 +1,4 @@
-## Hi there 👋
+Not lowelo since s11
 
 <!--
 **lklklk7/lklklk7** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
